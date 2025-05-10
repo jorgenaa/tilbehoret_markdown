@@ -1,0 +1,2 @@
+Shop nå. Betal med Klarna.
+Fri frakt over 1000 kr.
