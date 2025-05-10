@@ -1,0 +1,2 @@
+Shop now. Pay with Klarna.
+Free shipping over 1000 kr.
